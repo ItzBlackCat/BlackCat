@@ -18,7 +18,7 @@
 * [**osu! Profile**](https://osu.ppy.sh/users/19016916)
 
 
-## My GitHub links
+## Other links
 * [**My Sound Space Info**](https://github.com/ItzBlackCat/My-SoundSpace-Maps#readme)
 
 ## **Thanks for checking me out!**
