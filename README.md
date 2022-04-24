@@ -11,7 +11,6 @@
 
 ## Discord Server
 * [**BlackCat's Discord Server**](https://dsc.gg/itzblackcat)
-* [Server](https://cdn.discordapp.com/attachments/804151625681862677/967708147160596550/BlackCat.jpg?size=4096)
 
 
 ## Games I played
