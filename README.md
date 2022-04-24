@@ -9,7 +9,7 @@
 * [**Twitch**](https://www.twitch.tv/itzjustblackcat)
 
 
-## My Discord
+## Discord Server
 * [**BlackCat's Discord Server**](https://dsc.gg/itzblackcat)
 
 
