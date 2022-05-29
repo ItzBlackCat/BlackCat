@@ -1,5 +1,5 @@
 # **BlackCat's Info**
-### Hi I'm BlackCat, just a gamer who usually like to show own content and gameplay! Enjoying games a lot, and make sure to check out my further infomations below!
+### Hi I'm BlackCat, just a gamer who usually likes to show own contents and gameplays! Enjoying games a lot, make sure to check out my further infomations below!
 
 
 ## Also make sure to check out my social media!
